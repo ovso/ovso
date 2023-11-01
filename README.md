@@ -1,4 +1,4 @@
-# Thank you ✨ 😎 👍 🚀 ⚡ ✨
+# Thank you ✨✨
 <!--
 **ovso/ovso** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
